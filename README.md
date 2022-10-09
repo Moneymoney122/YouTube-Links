@@ -4,5 +4,3 @@
 - I will be updating this occasionally
 
 - This list includes music and non-music youtube videos
-
-- Mostly Killem videos lmao
